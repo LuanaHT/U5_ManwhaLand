@@ -27,7 +27,7 @@
 ## 📦 **Actividades y Recursos Clave**  
 - Gestión de inventario y actualización constante del catálogo.  
 - Marketing y promoción en redes sociales.  
-- Negociación y relaciones con editoriales y distribuidores de manhwa/manhua.  
+- Negociación y relaciones con editoriales y distribuidores de manhwha.
 - Espacio de almacenamiento para inventarios físicos.  
 
 ---
@@ -36,7 +36,7 @@
 - Editoriales y distribuidores en Corea.
 - Plataformas de envío y logística.  
 - Tiendas de cultura pop y cómics.  
-- Influencers y comunidades de fanáticos del manhwa y manhua.  
+- Influencers y comunidades de fanáticos del manhwha.
 
 ---
 
